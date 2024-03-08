@@ -12,7 +12,7 @@
 
 ### Maps & Credits
 
-- Glowshire & City Plaza - [Weegeepie](https://www.youtube.com/@WeegeepieYT)
+- Glowshire & City Plaza - Groompie's [1st](https://docs.google.com/document/d/1GeNsF5lVq6JxQj8BAhXSwgFyXdYNX3--mSKNX3gokQI/edit#heading=h.rb1h1110efvh), [2nd](https://docs.google.com/document/d/1-oNt2MGLyr5pCUxf0ms5ZzI3GshtJEYbnzov-FV34a8/edit#heading=h.ewm2vtkrl3cd), and [3rd (RECOMMENDED)](https://docs.google.com/document/d/1dxW7sERiM3m9fXQCbdFM_Fpf1OyX9w-jJgKiiMuibkE/edit#heading=h.ewm2vtkrl3cd) doucments
 - Snowy Town - [MrGameAndSketch](https://www.youtube.com/@MrGameAndSketch)
 - Mario's House (both Exterior and Interior) - [StupidMarioBros1Fan](https://www.youtube.com/@StupidMarioBros1Fan)
 - Collebello/Huge Town - Alessio
